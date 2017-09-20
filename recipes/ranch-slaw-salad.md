@@ -1,10 +1,10 @@
 
-# Kale Slaw Crunchy Salad 
+# Ranch Slaw Crunchy Salad 
 
 ## Ingredients - 
 Here's the list of ingredients - 
 
-- 1/2 pack of Kale Slaw Salad mix (Coles - https://shop.coles.com.au/a/a-national/product/coles-kaleslaw-salad-kit)
+- 1/2 pack of Ranch slaw Salad mix (Coles - https://shop.coles.com.au/a/a-national/product/coles-ranch-coleslaw-salad-kit)
 - 1 Pack of pre-cooked baby beetroots (Coles - https://shop.coles.com.au/a/a-national/product/coles-baby-beetroot)
 - 1/2 Fresh Avocado 
 - 1/2 Capsicum

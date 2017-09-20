@@ -15,8 +15,9 @@ We make no claims that you'll loose weight or shed those extra pounds, turn your
 
 ## On The Go Recipes
 - [Kale Slaw Crunchy Salad](/recipes/kales-slaw-salad.md)
-- Asian Style Crunchy Salad (Asian Style Crunchy Salad Kit, Avocado, Beetroot, Fresh Corn)
-- Beetroot Slaw Crunchy Salad (Beetroot Slaw Salad kit, Avocado, Fresh Corn, Capsicum)
+- [Asian Style Crunchy Salad](/recipes/asian-style-crunchy-salad.md)
+- [Beetroot Slaw Crunchy Salad](/recipes/beetroot-slaw-salad.md))
+- [Ranch Slaw Crunchy Salad](/recipes/ranch-slaw-salad.md))
 - Fresh Sprout Salad (Crunchy Combo Sprouts, Avocado, Fresh Corn, Capsicum)
 
 ## Thanks For Visiting - 
