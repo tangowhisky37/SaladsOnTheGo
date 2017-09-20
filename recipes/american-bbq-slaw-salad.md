@@ -1,10 +1,10 @@
 
-# Ranch Slaw Crunchy Salad 
+# American BBQ Slaw Crunchy Salad 
 
 ## Ingredients - 
 Here's the list of ingredients - 
 
-- 1/2 pack of Ranch slaw Salad mix (Coles - https://shop.coles.com.au/a/a-national/product/coles-ranch-coleslaw-salad-kit)
+- 1/2 pack of American BBQ Slaw Salad mix (Coles - https://shop.coles.com.au/a/a-national/product/coles-american-bbq-slaw-kit)
 - 1 Pack of pre-cooked baby beetroots (Coles - https://shop.coles.com.au/a/a-national/product/coles-baby-beetroot)
 - 1/2 Fresh Avocado 
 - 1/2 Capsicum
@@ -17,7 +17,7 @@ Here's the list of ingredients -
 I usually bin the sauce in preference to the vinegar/orange juice combination mentioned above. Feel free to use the sauce provided.
 
 ## Preparation - 
-- Pour 1/2 of the contents of the Ranch Slaw Crunch Salad into the salad bowl
+- Pour 1/2 of the contents of the American BBQ Slaw Crunch Salad into the salad bowl
 - Cut up 1/2 pack of the pre-cooked baby beetroots and pout into the salad bowl
 - Dice 1/2 avocado and pour into the salad bowl
 - Dice 1/2 capsicum and pout into the salad bowl

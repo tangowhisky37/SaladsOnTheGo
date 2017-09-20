@@ -17,7 +17,7 @@ Here's the list of ingredients -
 I usually bin the sauce in preference to the vinegar/orange juice combination mentioned above. Feel free to use the sauce provided.
 
 ## Preparation - 
-- Pour 1/2 of the contents of the Asian Style Crunch Salad into the salad bowl
+- Pour 1/2 of the contents of the Beetroot Style Crunch Salad into the salad bowl
 - Cut up 1/2 pack of the pre-cooked baby beetroots and pout into the salad bowl
 - Dice 1/2 avocado and pour into the salad bowl
 - Dice 1/2 capsicum and pout into the salad bowl
