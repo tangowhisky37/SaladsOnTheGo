@@ -20,7 +20,7 @@ We make no claims that you'll loose weight or shed those extra pounds, turn your
 - [Mexican Style Crunchy Salad](/recipes/mexican-style-crunchy-salad.md)
 - [Beetroot Slaw Crunchy Salad](/recipes/beetroot-slaw-salad.md)
 - [Ranch Slaw Crunchy Salad](/recipes/ranch-slaw-salad.md)
-- Fresh Sprout Salad (Crunchy Combo Sprouts, Avocado, Fresh Corn, Capsicum)
+- [Crunchy Sprouts & Corn Salad](/recipes/crunchy-sprouts-and-corn-salad.md)
 
 ## Thanks For Visiting - 
 Hopefully you have found some value in the guides that have been published at this site. If you have any input or feedback please drop me an email at trevor at practical performance analyst dot com. You can see the rest of my open contributions at [Github](https://github.com/tangowhisky37)
